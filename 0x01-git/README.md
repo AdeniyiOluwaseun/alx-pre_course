@@ -1,1 +1,1 @@
-we are new
+we artte new
